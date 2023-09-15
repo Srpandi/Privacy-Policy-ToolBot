@@ -1,1 +1,1 @@
-# Privacy-Policy-ToolBot
+# Politica de privacidad de ToolBot
